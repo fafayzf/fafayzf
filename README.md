@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @fafayzf
+- 🌱 I’m currently learning ...
+- ✨ set up a flag, 100 stars at the end of the year, End！
