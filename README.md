@@ -1,3 +1,3 @@
 - 👋 Hi, I’m jian
 - 🌱 I’m currently learning ...
-- ✨ set up a flag, 100 stars at the 2024, End！
+- ✨ set up a flag
